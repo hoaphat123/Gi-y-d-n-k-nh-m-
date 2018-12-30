@@ -1,0 +1,2 @@
+# Gi-y-d-n-k-nh-m-
+Giấy dán kính mờ hay decal dán kính mờ là một sản phẩm đã trở nên quen thuộc với các văn phòng, nhà ở nhờ những công dụng tuyệt vời. Không chỉ giúp che mờ, tạo không gian riêng tư, tránh ánh nhìn từ bên ngoài mà giấy dán kính mờ còn làm tăng tính thẩm mỹ cho văn phòng và ngôi nhà của bạn. Hơn thế, nhờ tính linh hoạt cao, khách hàng dễ dàng in logo, cắt chữ, cắt line, thiết kế theo những phong cách khác nhau, tạo dấu ấn và nét cá tính riêng cho không gian của bạn.  #giay_dan_kinh #decal_dan_kinh #dan_kinh_hoa_phat #phim_cach_nhiet
